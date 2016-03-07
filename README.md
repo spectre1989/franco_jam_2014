@@ -1,1 +1,1 @@
-# franco_jam_2014
+# my solo submission for Franco Jam 2014, as team "Triumphant Ice-Cream Sandwiches"
